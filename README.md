@@ -37,5 +37,5 @@
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/nakuljain1703/)
+- 💼 [LinkedIn](www.linkedin.com/in/nakul-jain-8a859b373)
 - ✉️ Mail me at: **nakuljain0106@gmail.com**
